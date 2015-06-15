@@ -1,0 +1,9 @@
+So What\'s The Big Deal With California Wines Anyway?/n2013-09-23 21:00:12/nI have a friend who is a consummate wine snob. She\'s a vocal defender of the Old World winemaking traditions and has been known to drone for hours on the virtues of Bordeaux terroirs. She was positively offended last week when she saw me slip a \"juice box\" in my bag on our way to the dog park. \"How can you drink that?\" she screeched, pointing at my handy 500 ml Bota Box of delicious California Pinot Grigio. [caption id=\"attachment_275\" align=\"aligncenter\" width=\"400\"][![\"juiceboxes\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/juiceboxes.jpg\")](\"http://www.pinterest.com/pin/400468591836155173/\") <span style="\"color:">*Karen from Will & Grace knows what I\'m talkin\' about! See this pin and others on our Pinterest board, **<span style="\"color:">[<span style="\"color:">Wine Quotes</span>](\"http://www.pinterest.com/ucellar/wine-quotes/\")</span>**.*</span>[/caption]
+
+<span left="" style="\"text-align:">Now to me, the adult juice box is the greatest invention since the drive-through window, so I was preparing to defend my fondness for the box. Turns out her outrage wasn\'t directed at the box, it was at the California wine it contained. My friend had never wittingly subjected her sophisticated palate to the insult of domestic \"faux wine.\"</span>
+
+Time for a lesson on the Great Big Deal that is California wine, my friend.
+
+***THANK GOD FOR CALIFORNIA WINE***
+
+No, really. Thank God. Viticulture came to California in the 18th century with the Spanish monks, who made wine for sacraments

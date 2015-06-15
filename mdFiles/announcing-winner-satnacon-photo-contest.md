@@ -1,0 +1,1 @@
+Announcing the Winner of our SatnaCon Photo Contest/n2014-12-19 18:44:19/n![\"\"](\"http://i.imgur.com/wgBTOkP.png\")<span style="\"font-size:" xx-small="">Photo credit:

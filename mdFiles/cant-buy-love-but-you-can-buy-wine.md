@@ -1,0 +1,1 @@
+You can\'t buy love, buy you can buy wine./n2013-02-14 22:20:11/n<div><div>\"You can\'t buy love, but you can buy wine\" <~Pretty much the same thing, right?</div>   </div><div>[![\"Winewits](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/Winewits-for-winos.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/Winewits-for-winos.jpg\")</div>

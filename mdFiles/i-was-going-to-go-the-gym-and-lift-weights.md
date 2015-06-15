@@ -1,0 +1,1 @@
+I was going to go the gym and lift weights/n2012-10-22 07:12:33/nAnyone else feel this way this weekend? [![\"IWasGoing\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/IWasGoing.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/IWasGoing.jpg\")

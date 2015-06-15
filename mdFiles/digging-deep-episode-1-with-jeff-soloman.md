@@ -1,0 +1,1 @@
+Digging Deep Episode 1 with Jeff Solomon/n2013-08-21 18:07:48/n<div id="\"pn1\""> *Jeff Solomon from [StayRadWineBlog.com](\"StayRadWineBlog.com\") hosts the video series \"Digging Deep\" on [Underground Cellar](\"http://www.undergroundcellar.com\"). Have any wine questions for Jeff? Tweet to him at 

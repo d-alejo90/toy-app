@@ -1,0 +1,3 @@
+Win a Grand Sonoma Winecation!/n2014-03-27 16:59:18/n[![\"10154550_474700772629655_600718583_n\"](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/04/10154550_474700772629655_600718583_n.jpg\")](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/04/10154550_474700772629655_600718583_n.jpg\")
+
+ I have two words for you: DREAM WINECATION! We are hosting a huge giveaway where 1 lucky person win the Grand Sonoma Winecation Getaway! The winner plus 3 best friends will enjoy: -Accommodations at the luxurious

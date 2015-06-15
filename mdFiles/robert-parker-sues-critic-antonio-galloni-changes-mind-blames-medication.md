@@ -1,0 +1,3 @@
+Robert Parker sues critic Antonio Galloni; changes mind shortly after/n2013-05-24 23:58:22/n![\"robert_parker_antonio_galloni_the_wine_advocate\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/05/robert_parker_antonio_galloni_the_wine_advocate.png\")
+
+ The wine world was shocked earlier this year by news that The Wine Advocate had filed a lawsuit against their former lead wine critic, Antonio Galloni. The action claimed fraud, defamation, tortuous interference, misappropriation of confidential information, breach of contract and other charges related to withholding tasting notes and articles.

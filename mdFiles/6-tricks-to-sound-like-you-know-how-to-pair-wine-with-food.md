@@ -1,0 +1,3 @@
+6 Tricks to (Sound Like You Know How to) Pair Wine with Food/n2013-04-02 09:30:14/n[![\"science](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/scienceofwinetasting.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/scienceofwinetasting.png\")
+
+ So what makes some foods great with white wine, and others perfect for enjoying with a bottle of red? The answer lies in food science. The reason why some wines pair badly with certain foods lies in the chemical composition of the food. Certain chemical compounds are known to affect the way in which we experience taste. **1) ****Don

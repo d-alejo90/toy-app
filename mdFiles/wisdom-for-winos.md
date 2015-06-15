@@ -1,0 +1,1 @@
+Life is too short to drink bad wine/n2013-02-14 00:48:34/n\"Life is too short to drink bad wine\" <~If you agree, post what wine you drank this week! [![\"Wisdom](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/Wisdom-for-winos.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/Wisdom-for-winos.jpg\")

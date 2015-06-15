@@ -1,0 +1,1 @@
+I only drink when I\'m with friends/n2013-03-12 03:45:57/nMan\'s best friend. [![\"I](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/I-only-drink-when-i-m-with-friends.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/I-only-drink-when-i-m-with-friends.jpg\")

@@ -1,0 +1,1 @@
+Wine from Georgia is Totally Underrated Right Now/n2013-06-28 20:13:11/n![\"Georgia](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/06/7.jpg\") Oh, you thought Georgia was known for **peaches? **Well they are, but we
