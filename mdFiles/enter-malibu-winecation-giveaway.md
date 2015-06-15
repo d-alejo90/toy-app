@@ -1,1 +1,1 @@
-Enter our Malibu Winecation Giveaway/s2014-11-24 21:01:17/s**We
+Enter our Malibu Winecation Giveaway<br/>2014-11-24 21:01:17<br/>**We

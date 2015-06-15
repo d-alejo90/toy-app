@@ -1,1 +1,1 @@
-Drinking Wine at the Movies/s2013-07-05 20:37:08/s![\"wine_in_movie_theaters\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/07/wine_in_movie_theaters.jpg\") If you live in a town with a population over 15 people, then you likely have seen 
+Drinking Wine at the Movies<br/>2013-07-05 20:37:08<br/>![\"wine_in_movie_theaters\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/07/wine_in_movie_theaters.jpg\") If you live in a town with a population over 15 people, then you likely have seen 

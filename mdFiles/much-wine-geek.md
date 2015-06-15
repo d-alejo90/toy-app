@@ -1,3 +1,3 @@
-How much of a wine geek are you?/s2014-03-07 20:54:28/s[![\"Wine-quiz-image-10003889](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Wine-quiz-image-10003889-11.jpg\")](\"http://www.wine-searcher.com/quiz.lml#\")
+How much of a wine geek are you?<br/>2014-03-07 20:54:28<br/>[![\"Wine-quiz-image-10003889](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Wine-quiz-image-10003889-11.jpg\")](\"http://www.wine-searcher.com/quiz.lml#\")
 
  Do you know where the world\'s top ten most expensive wines come from? How about what mountain range the Shenandoah Valley sits within? These questions and thousands more make up a fun new quiz from [Wine-Searcher](\"http://www.wine-searcher.com/quiz.lml#\"). The quiz

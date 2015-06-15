@@ -1,1 +1,1 @@
-Last minute wine pairing tips for Thanksgiving/s2014-11-25 17:22:42/sIt
+Last minute wine pairing tips for Thanksgiving<br/>2014-11-25 17:22:42<br/>It

@@ -1,4 +1,4 @@
-My Top 5 Favorite Wine Blogs/s2013-09-17 18:56:24/s[![\"30\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/30.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/30.jpg\")
+My Top 5 Favorite Wine Blogs<br/>2013-09-17 18:56:24<br/>[![\"30\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/30.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/30.jpg\")
 
 There is a plethora of wine blogs out there on the interwebs. With so many people spouting off their experiences and opinions, it can be difficult to follow them all, and separating the gems from all the crap becomes a priority. Here are five of my favorite wine blogs for your reading pleasure.
 

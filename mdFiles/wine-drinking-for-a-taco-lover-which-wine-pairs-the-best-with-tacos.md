@@ -1,4 +1,4 @@
-Wine Drinking For A Taco Lover - Which Wine Pairs The Best With Tacos/s2013-09-10 23:01:26/s   
+Wine Drinking For A Taco Lover - Which Wine Pairs The Best With Tacos<br/>2013-09-10 23:01:26<br/>   
 
 [![\"38\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/38.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/38.jpg\")
 

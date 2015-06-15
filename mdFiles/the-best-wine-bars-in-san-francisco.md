@@ -1,3 +1,3 @@
-The best wine bars in San Francisco/s2013-08-15 19:50:31/s[![\"12\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/12.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/12.jpg\")
+The best wine bars in San Francisco<br/>2013-08-15 19:50:31<br/>[![\"12\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/12.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/12.jpg\")
 
 When you consider the close proximity between the grand Bay Area city of San Francisco and the renown wine country of Napa Valley, San Francisco becomes an obvious wine bar haven. As long as you

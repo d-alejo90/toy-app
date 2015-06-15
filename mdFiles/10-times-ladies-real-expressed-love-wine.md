@@ -1,1 +1,1 @@
-10 Times the Ladies of The Real Expressed Love for Wine/s2014-12-05 21:10:25/sMore than one of us here at the Underground Cellar team are fans of The Real, and if you watch the show then you know it\'s no secret that the hosts enjoy the occasional glass of wine. **1. Our favorite
+10 Times the Ladies of The Real Expressed Love for Wine<br/>2014-12-05 21:10:25<br/>More than one of us here at the Underground Cellar team are fans of The Real, and if you watch the show then you know it\'s no secret that the hosts enjoy the occasional glass of wine. **1. Our favorite

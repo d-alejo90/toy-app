@@ -1,3 +1,3 @@
-Vintner who put Napa Valley on the map, dies at 86/s2013-04-03 22:52:01/s[![\"jim](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/jimbarrett.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/jimbarrett.png\")
+Vintner who put Napa Valley on the map, dies at 86<br/>2013-04-03 22:52:01<br/>[![\"jim](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/jimbarrett.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/jimbarrett.png\")
 
  <span style="\"text-decoration:" underline="">**The creation of a legacy**</span> American vintner Jim Barrett recently died at the age of 86. While you may not recognize his name, his life

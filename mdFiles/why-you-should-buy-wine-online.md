@@ -1,4 +1,4 @@
-Why You Should Buy Wine Online/s2013-08-27 17:02:16/s[![\"26\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/26.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/26.jpg\")
+Why You Should Buy Wine Online<br/>2013-08-27 17:02:16<br/>[![\"26\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/26.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/26.jpg\")
 
 As a wine lover, you\'ll go to great lengths to find that perfect glass of merlot or taste that first, crisp sip of sauvignon blanc. You\'ll stand in line at the grocery store checkout, beg the liquor store owner for a list of inventory, even put up with the fashionistas hogging the seats at the grand opening of the neighborhood wine bar. But what if you could eliminate these pesky middle men of inconvenience? What if all that stands between you and that little glass of grenache-infused heaven is a laptop and your credit card?
 

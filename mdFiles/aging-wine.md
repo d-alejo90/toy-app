@@ -1,3 +1,3 @@
-Simple Tips for Aging Wine/s2014-03-19 21:19:03/s[![\"Aging](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Aging-wine-2.png\")](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Aging-wine-2.png\")
+Simple Tips for Aging Wine<br/>2014-03-19 21:19:03<br/>[![\"Aging](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Aging-wine-2.png\")](\"http://www.undergroundcellar.com/blog/wp-content/uploads/2014/03/Aging-wine-2.png\")
 
 Have you ever dreamt of having your own wine cellar to store and age your wine? You know, one with a beautiful spiral staircase and perfectly organized bottles by varietal and age? For those of us wine lovers, this is a daily fantasy. I mean seriously, we

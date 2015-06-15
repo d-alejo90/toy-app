@@ -1,1 +1,1 @@
-Save California Redwoods!/s2013-11-14 19:03:58/sLast week, we shared the news about the
+Save California Redwoods!<br/>2013-11-14 19:03:58<br/>Last week, we shared the news about the

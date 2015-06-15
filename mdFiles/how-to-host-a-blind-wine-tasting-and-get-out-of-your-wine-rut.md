@@ -1,1 +1,1 @@
-How to: Host a blind wine tasting (and get out of your wine rut)/s2013-07-12 06:04:19/s![\"blind_wine_tasting\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/07/blind_wine_tasting.jpg\") I know I speak for many people who often find themselves in a bit of a wine rut. Don
+How to: Host a blind wine tasting (and get out of your wine rut)<br/>2013-07-12 06:04:19<br/>![\"blind_wine_tasting\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/07/blind_wine_tasting.jpg\") I know I speak for many people who often find themselves in a bit of a wine rut. Don
