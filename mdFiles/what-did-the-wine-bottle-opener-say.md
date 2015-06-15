@@ -1,1 +1,1 @@
-Corny wine joke/n2012-10-23 22:29:16/nWhat did the wine bottle say to the bottle opener?! [![\"WhatdidtheWine\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/WhatdidtheWine.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/WhatdidtheWine.jpg\")
+Corny wine joke/s2012-10-23 22:29:16/sWhat did the wine bottle say to the bottle opener?! [![\"WhatdidtheWine\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/WhatdidtheWine.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/WhatdidtheWine.jpg\")

@@ -1,4 +1,4 @@
-The Sexiest Wine Bottle Labels/n2013-09-04 21:05:50/n[![\"31\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/31.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/31.jpg\")
+The Sexiest Wine Bottle Labels/s2013-09-04 21:05:50/s[![\"31\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/31.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/09/31.jpg\")
 
 Wine labels used to be fairly predictable, and actually, pretty boring at times too. They depicted vineyard scenes from centuries past, complete with horses, carts and toiling peasantry. Snore! But today the market is more crowded than ever, and vintners have to be a bit more creative if they want to attract our attention. A great way to generate buzz about a new wine is to become the hot topic on Facebook and Twitter, and one of the best ways to do that is by being a little risqu	 It\'s a cliché that sex sells, but it sure is true.
 

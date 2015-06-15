@@ -1,4 +1,4 @@
-Wine and Sex and Chocolate/n2013-10-10 19:00:14/n 
+Wine and Sex and Chocolate/s2013-10-10 19:00:14/s 
 
 <div>[![\"Wine](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-08-at-3.30.18-PM.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-08-at-3.30.18-PM.png\")</div><span small="" style="\"font-size:">Ah, the true pleasures of life. A beautiful spring morning, a delicious cup of coffee, or just a great hair day are feel-good experiences that we treasure and look forward to. Combinations of these pleasures makes them even more worthwhile and desirable. But if you\'re craving an even better combined experience, go for the ultimate: wine, sex and chocolate. Got your attention? Thought so!</span>
 

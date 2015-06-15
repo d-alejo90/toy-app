@@ -1,1 +1,1 @@
-Underground Cellar is Launching on September 12th!/n2013-08-29 17:34:47/n*****Mark your calendars! We\'re just 14 days away from the official launch of Underground Cellar,
+Underground Cellar is Launching on September 12th!/s2013-08-29 17:34:47/s*****Mark your calendars! We\'re just 14 days away from the official launch of Underground Cellar,

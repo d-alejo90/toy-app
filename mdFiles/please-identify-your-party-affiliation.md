@@ -1,1 +1,1 @@
-Please identify your party affiliation/n2012-09-07 22:56:42/nWith all of the political posts flooding through Facebook this week, here at
+Please identify your party affiliation/s2012-09-07 22:56:42/sWith all of the political posts flooding through Facebook this week, here at

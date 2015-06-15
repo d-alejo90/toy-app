@@ -1,1 +1,1 @@
-Using Wine in Your Cereal Instead of Milk/n2013-05-29 07:10:42/n![\"wine-cereal\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/05/wine-cereal.jpg\")**How I became a wine/cereal pairing expert** OK I
+Using Wine in Your Cereal Instead of Milk/s2013-05-29 07:10:42/s![\"wine-cereal\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/05/wine-cereal.jpg\")**How I became a wine/cereal pairing expert** OK I

@@ -1,1 +1,1 @@
-At my age I need glasses/n2012-11-28 18:36:16/nPretty much sums up how I feel about this whole getting older thing. [![\"At](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/At-my-age.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/At-my-age.jpg\")
+At my age I need glasses/s2012-11-28 18:36:16/sPretty much sums up how I feel about this whole getting older thing. [![\"At](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/At-my-age.jpg\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/04/At-my-age.jpg\")

@@ -1,3 +1,3 @@
-PRESS RELEASE: Small Company with Big Backing Unveils Innovative Solution for $100-Million Winery Problem/n2013-09-06 19:18:07/n*OFFICIAL PRESS RELEASE - September 6, 2013*[![\"uclogoforemail565w\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/uclogoforemail565w.png\")](\"http://www.undergroundcellar.com\")
+PRESS RELEASE: Small Company with Big Backing Unveils Innovative Solution for $100-Million Winery Problem/s2013-09-06 19:18:07/s*OFFICIAL PRESS RELEASE - September 6, 2013*[![\"uclogoforemail565w\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/08/uclogoforemail565w.png\")](\"http://www.undergroundcellar.com\")
 
  Underground Cellar, the new wine startup founded by technology entrepreneur Jeffrey Shaw, has reconstructed an innovative solution to a problem plaguing the $1.4-Billion direct-to-consumer wine industry: deep-discount websites.

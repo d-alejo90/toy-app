@@ -1,1 +1,1 @@
-The 2 Minute New Zealand Red Wine Starter Kit - VIDEO/n2014-02-19 21:58:39/nWondering what are some of the best New Zealand reds? Check out this quick [Wine Channel TV video](\"http://www.youtube.com/user/WineChannelTV/featured\")
+The 2 Minute New Zealand Red Wine Starter Kit - VIDEO/s2014-02-19 21:58:39/sWondering what are some of the best New Zealand reds? Check out this quick [Wine Channel TV video](\"http://www.youtube.com/user/WineChannelTV/featured\")

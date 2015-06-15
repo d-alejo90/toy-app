@@ -1,4 +1,4 @@
-An Open Letter To Miley Cyrus ... on Her 21st Birthday    ---------------   (and our $50,000 gift)/n2013-11-23 12:08:08/n[![\"miley\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/11/miley.png\")](\"http://www.undergroundcellar.com/?miley21\")
+An Open Letter To Miley Cyrus ... on Her 21st Birthday    ---------------   (and our $50,000 gift)/s2013-11-23 12:08:08/s[![\"miley\"](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/11/miley.png\")](\"http://www.undergroundcellar.com/?miley21\")
 
 **Miley, please accept our gift: $50,000 of wine for you, $21 for each fan.**
 

@@ -1,3 +1,3 @@
-The Best Wine Bars in Chicago/n2013-10-03 17:23:07/n[![\"Best](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-03-at-9.35.26-AM.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-03-at-9.35.26-AM.png\")
+The Best Wine Bars in Chicago/s2013-10-03 17:23:07/s[![\"Best](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-03-at-9.35.26-AM.png\")](\"http://blog.undergroundcellar.com/wp-content/uploads/2013/10/Screen-Shot-2013-10-03-at-9.35.26-AM.png\")
 
  For wine lovers in a major world class city such as Chicago, there is definitely no shortage of social life options. You can find 6,000+ full-service restaurants and over 1,500 bars and taverns. But how about the always lovely wine bars in this windy city? 
